@@ -46,15 +46,47 @@ Judy took the card, studied it, looked at me. Softened.
 
 I nodded, left the diner, got back in the car.
 
-Maple Street took three minutes. The Victorian looked the same—white paint, green shutters, bare maples, smoke from the chimney.
+Main Street was waking up—stores opening, early shoppers. I slowed when I saw the flower shop.
+
+The owner was just unlocking the door. Old guy, apron, surprised look.
+
+I pulled over, got out.
+
+"Morning."
+
+"You open?"
+
+"Just now. Come in."
+
+The shop smelled like roses and something green. Buckets of flowers lined the walls.
+
+"What can I get you?" the owner asked.
+
+"Bouquet. Something nice."
+
+He studied me. "For courting or apologizing?"
+
+"Both, maybe."
+
+He smiled. "I got just the thing."
+
+He put together a mix—roses, some white flowers, greenery. Wrapped them in paper, handed them over.
+
+"Good luck, son."
+
+"Thanks."
+
+I paid, walked back to the car with flowers in hand. Felt like an idiot. Felt like maybe I was doing something right.
+
+Maple Street took three minutes from Main. The Victorian looked the same—white paint, green shutters, bare maples, smoke from the chimney.
 
 Nina was inside. Making breakfast for Betty. Alone for four weeks while I'd been gone.
 
-I sat in the car, finding courage.
+I sat in the car, finding courage. The bouquet sat on the passenger seat, wrapped in paper.
 
 You drove four hundred miles for this. Made real changes. Don't chicken out now.
 
-I got out, walked up the steps, knocked.
+I grabbed the flowers, got out, walked up the steps, knocked.
 
 Footsteps inside. The door opened.
 
